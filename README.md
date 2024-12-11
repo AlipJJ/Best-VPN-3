@@ -24,7 +24,7 @@
 对 Netflix、Disney+ 和 Youtube Premium 解锁支持度也十分不错。
 包年套餐用户直接赠送ChatGpt等高级账号，除了常规套餐之外，也有不限时按量付费流量包提供
 
-![](https://pic.imgdb.cn/item/659bbda6871b83018a7919f2.jpg)
+![](https://www.cnvintage.org/assets/files/2024-12-11/1733908568-366823-image.png)
 
 ## Suyunti 速云梯大流量流媒体翻墙机场
 [**点击传送速云梯机场官网地址**](https://go.1vpn.cc/suyu)
